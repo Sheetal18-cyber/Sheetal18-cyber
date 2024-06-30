@@ -1,3 +1,4 @@
-This is my first repository, and I am still learning everything😃.
+Hey there 🤗.
 <br>
-Author- Sheetal.
+ I am still learning everything😃.
+
